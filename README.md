@@ -1,0 +1,1 @@
+# My-Fastfetch-Config
